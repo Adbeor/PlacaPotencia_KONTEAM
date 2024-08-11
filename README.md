@@ -1,0 +1,1 @@
+# PlacaPotencia_KONTEAM
